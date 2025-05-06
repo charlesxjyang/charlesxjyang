@@ -7,6 +7,6 @@
 
 🤖 Machine Learning Engineer
 
-🌍 Climate Expert
+🏭 Industrial Policy
 
 ✝️ Seminary Student
